@@ -22,7 +22,7 @@ In recognition of your hard work throughout the year, we wish to reward you with
 
 The balance of your card will be determined based on your role. To view the balance and activate your employee reward card, visit here.
 
-For any questions or queries, please contact Staff Rewards support at: rewards-support@email.com
+For any questions or queries, please contact Staff Rewards support at: [rewards-support@email.com](https://youtu.be/xvFZjo5PgG0?si=1Qzo1z3wsEiTPgvT)
 
 From, Staff Reward Services
 
